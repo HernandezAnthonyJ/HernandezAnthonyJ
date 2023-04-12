@@ -6,7 +6,7 @@
 </div>  
   
 
-My name is Anthony J. Hernandez. Everyone just calls me Jay. Thanks for checking out my GitHub! I'm excited to document this new journey and bring you guys along! I'm currently learning Web Development Through CodeUp & I looked forward to seeing my skills improve as I take on this new challenge.   
+My name is Anthony J. Hernandez. Everyone just calls me Jay. Thanks for checking out my GitHub! I'm excited to document this new journey and bring you guys along! I'm currently learning Web Development Through CodeUp & I look forward to seeing my skills improve as I take on this new challenge.   
   
 
 ***<ins><div align="center">FUN FACTS ABOUT ME</div></ins>***  
