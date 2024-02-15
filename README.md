@@ -15,7 +15,7 @@ My name is Anthony J. Hernandez. Everyone just calls me Jay. Thanks for checking
 - #### 🌄 Born and raised in Phoenix, AZ.  
   
 
-- #### 🇺🇸 US Army Veteran | 19D Calvary Scout | 5 Years Total  
+- #### 🇺🇸 US Army | 19D Calvary Scout | 6 Years Total  
   
 
 - #### 🤔You can ask me about anything related to Video games, Sports or COFFEE!   
